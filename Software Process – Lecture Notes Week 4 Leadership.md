@@ -1,0 +1,15 @@
+#lecture-notes 
+- What is the number one reason for fraud?
+	- Fear to fail
+	- Risk Reward
+	- Personal gain 
+- Why do people no stand up against unfairment?
+	- Fitting in, Adjustment, *Hopelessness*, Lazyness 
+- What is the American perspective of leading?
+	- The leader is the one who has the proven ability to get the job done 
+	- *Is the company succeeding because of you or despite you?*
+- ==*What are traits / characteristics of leaders?==*
+	- Confidence -> No confidence, no follow
+	- 
+	- Dominance, Authority (Power Figure)
+	- Trust, Positive Affirmation
